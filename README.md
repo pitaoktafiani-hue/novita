@@ -1,0 +1,2 @@
+# novita
+tugas informatika
